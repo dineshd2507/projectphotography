@@ -1,2 +1,1 @@
-# projectphotography
-school of photography
+
